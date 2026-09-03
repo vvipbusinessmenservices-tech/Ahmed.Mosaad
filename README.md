@@ -19,6 +19,7 @@ We provide professional support for:
 We don’t just do business setup… We build your success in Dubai.
 
 Dubai, UAE
-+971 54 222 4333
-ahmed.mosaad@vvip-services.ae
-info@vvip-services.ae
+Phone: +971 54 222 4333
+
+Email: ahmed.mosaad@vvip-services.ae
+Company Email: info@vvip-services.ae
